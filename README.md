@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Bernald Ng
+- 👋 Hi, I’m Bernald Ng ACCA
 - 👀 I’m interested in Accounting, Blockchain, Capital 
 - 🌱 I’m currently learning about NFTs
 - 💞️ I’m looking to collaborate on Entrepreneurship 
